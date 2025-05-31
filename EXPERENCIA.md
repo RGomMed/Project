@@ -1,0 +1,1 @@
+Mis dificultades durante la realización de la actividad son las basicas para una persona que desconoce de la plataforma, al ser una interfaz nueva que cuenta con diversas herramientas, necesitaba una mayor comprension sobre sus funcionalidades y herramientas.
